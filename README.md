@@ -5,4 +5,4 @@ Hi Humans!
 
 I'm someone try to find out the underlying truths beneath different mathemetical and physical phenomena.
 
-I've got no tacos but first-class hotpot gradients in China~ Delicious~
+I've got no tacos but first-class hotpot ingredients in China~ Delicious~
